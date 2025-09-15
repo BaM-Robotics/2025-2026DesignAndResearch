@@ -19,6 +19,15 @@ OTHER:
 - https://www.youtube.com/watch?v=sK2BaFkW2D4 <----- new rules
 - https://youtu.be/0KVYB96jpJE?si=vRhu1WHG7jqsMJ8o <----- **dimensions**
 
+Not links but informations:
+Discretion: I am assuming the measurements are in inches and not anything else
 
+The Long Goals located on the sides of the field are 12.67 in. to the bottom lip
+
+The Upper Center Goal is 8.01 in. to the bottom lip
+
+The lower Center Goal is .5 in. to the bottom lip
+
+source: https://www.vexforum.com/t/how-high-are-the-tube-goals-in-push-back/136691/6?utm_source=chatgpt.com
 
 
