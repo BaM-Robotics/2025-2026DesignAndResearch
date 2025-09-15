@@ -20,6 +20,7 @@ OTHER:
 - https://youtu.be/0KVYB96jpJE?si=vRhu1WHG7jqsMJ8o <----- **dimensions**
 
 Not links but informations:
+
 Discretion: I am assuming the measurements are in inches and not anything else
 
 The Long Goals located on the sides of the field are 12.67 in. to the bottom lip
